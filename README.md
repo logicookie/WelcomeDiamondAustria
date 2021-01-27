@@ -1,2 +1,4 @@
 # WelcomeDiamondAustria
-Discord: https://discord.gg/3jDtdU
+
+Projekt wird leider nicht fortgeführt:
+DiamondAustria
